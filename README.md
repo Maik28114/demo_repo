@@ -1,5 +1,11 @@
 # Demo Repo
+<<<<<<< HEAD
 Sweet Home Alabama!
+=======
+Hello World from Maik ! Stays! 
+Changing this line to produce conflicts. Modified by Galina.
+Grüße von Anna Bea. Ich wünsche euch einen schönen Tag.
+>>>>>>> main
 
 ## Lines for PR practice
 Line 1
