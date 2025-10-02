@@ -11,9 +11,11 @@ Besonders faszinieren mich die Genres:
 - 🍃 **Slice of Life**
 
 Meine ersten Begegnungen mit Anime hatte ich schon früh im **deutschen Fernsehen**.  
-Klassiker wie **Biene Maja**, **Heidi**, **Captain Future** und viele andere Serien aus dieser Zeit haben meine Begeisterung für Anime geweckt und den Grundstein für mein heutiges Hobby gelegt.  
+Klassiker wie **Biene Maja**, **Heidi**, **Captain Future** und viele andere Serien aus dieser Zeit haben meine Begeisterung für Anime geweckt
+und den Grundstein für mein heutiges Hobby gelegt.  
 
-Neben Anime gehören auch **Manga** zu meinen großen Leidenschaften – sie sind für mich eine perfekte Ergänzung, da sie oft tiefere Einblicke in Geschichten und Charaktere ermöglichen.  
+Neben Anime gehören auch **Manga** zu meinen großen Leidenschaften – sie sind für mich eine perfekte Ergänzung,
+da sie oft tiefere Einblicke in Geschichten und Charaktere ermöglichen.  
 
 ---
 
